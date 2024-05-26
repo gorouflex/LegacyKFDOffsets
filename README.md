@@ -1,2 +1,6 @@
 # LegacyKFDOffsets
 [Archived] Legacy KFD Offsets made by GorouFlex, 34306,…
+
+### Wow, what beautiful memories with that thing...
+### I miss it... misaka...
+### It takes more than 4 hours to do that
